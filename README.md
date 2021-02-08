@@ -6,8 +6,6 @@
 
 :seedling: - I'm currently working as a freelancer on an agroecology project.
 
-:exclamation: - I'm open to work!
-
 :gem: - Ruby on Rails enthusiast! :two_hearts: 
 
 :sparkles: - Always looking for new challenge and learn more!
