@@ -1,7 +1,7 @@
  
 # Hey, I am Yasmin Valim  👻
  
-How you doing? I'm a brazillian girl passionate about psychology and technology at the same time, to put it another way: I consider myself fascinated about minds and machines! I'm currently working as junior software enginering, mostly interested on backend. I am also a volunteer on Go, Girls! working to incentive girls in STEM area and improve their confidence!
+How you doing? I'm a brazillian girl passionate about psychology and technology at the same time, to put it another way: I consider myself fascinated about minds and machines! I'm currently working as junior software enginering, mostly interested on backend, but I got my degree in Psychology.
 
 # Articles 📄
 
