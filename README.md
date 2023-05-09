@@ -22,6 +22,5 @@ How you doing? I'm a brazillian girl passionate about psychology and technology 
 
 :sparkles: Always looking for new challenge and learn more!
 
-:sparkles: Pronouns: She/Her
 
 
