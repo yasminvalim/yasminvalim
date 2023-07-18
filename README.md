@@ -16,8 +16,6 @@ How you doing? I'm a brazillian girl passionate about psychology and technology 
 
 # More about me 💫
 
-:sparkles: Rubyst
-
 :sparkles: Open source enthusiast
 
 :sparkles: Always looking for new challenge and learn more!
