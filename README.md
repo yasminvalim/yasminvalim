@@ -1,5 +1,5 @@
  
-# Hey, I am Yasmin Valim  👻
+# Hey, I am Yasmin  👻
  
 How you doing? I'm a brazillian girl passionate about psychology and technology at the same time, to put it another way: I consider myself fascinated about minds and machines! 
 
